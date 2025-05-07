@@ -1,4 +1,4 @@
-## Oi! Eu sou a Deborah ✨
+## Oi! Eu sou a Kerah ✨
 💡 Bem vindo (a) ao meu perfil! 👋
 
 <div align="center">
